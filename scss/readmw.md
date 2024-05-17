@@ -1,0 +1,1 @@
+HAI SHEREN, Senang bertemu kamu ya, sebenarnya dari awal Methoca cup aku udah suka sama kamu heheh, pertama aku liat kamu waktu dilapangan futsal waktu pembukaan tournament futsal itu, maaf ya cara aku cupu banget buat dekatin kamu hehehe.
